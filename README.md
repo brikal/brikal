@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brikal
-- 👀 I’m interested in coding 
+- 👀 I’m interested in New things
 - 🌱 I’m currently learning c/c++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me NOPE NOT NOW 
